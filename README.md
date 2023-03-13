@@ -37,12 +37,13 @@ I Know you guys are not that much stupid who will pay $200+. I have a best thing
 
 4. NOW MESSAGE THE OWNER OF CHANNEL TO ADD THE BALANCE IN YOUR ACCOUNT - @white_hat_278. HE ASK YOU FOR $45 IF FOR BOTH CALL AND EMAIL SPOOFING. PAY HIM. AND GIVER YOUR USERNAME HE WILL ADD THA BALANCE.
 
-*YOU CAN ALSO ASK FOR DEMO.(THE GREAT THING IT IS ESPECIALLY FOR INDIA)*
+*YOU CAN ALSO ASK FOR DEMO.
+(THE GREAT THING IS IT IS ESPECIALLY FOR INDIA)*
 
 5.NOW AFTER BUYING ALL MATERIAL GO TO PORT SIP APP AND ENTER YOUR USERNAME, PASSWORD DOMAIN. NOW CONGRATULATIONS YOU CAN SPOOF ANYONE EMAIL AND CALL.
 
 
-## WATCH VIDEO
+## WATCH VIDEO :
 
 
 
@@ -51,8 +52,6 @@ I Know you guys are not that much stupid who will pay $200+. I have a best thing
 
 [![Instagram](https://img.shields.io/badge/INSTAGRAM-FOLLOW-red?style=for-the-badge&logo=instagram)](https://instagram.com/white_hat_278?igshid=175v9uifresgr)
 [![Instagram](https://img.shields.io/badge/TELEGRAM-CHANNEL-red?style=for-the-badge&logo=telegram)](https://t.me/white_hat278)
-## BUY ME A COFFEE :
-
 
 ## WARNING : 
 ***This method is only for educational purpose. If you this method for scaming others we are not responsible for it..***
