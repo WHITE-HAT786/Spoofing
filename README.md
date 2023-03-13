@@ -20,14 +20,14 @@
 * Email spoofing is a technique used in spam and phishing attacks to trick users.
 
 ## REQUIREMENTS :
-For doing call spoofing you need to have a route which is about $100 per country and debian and debian server. Similarly for email spoofing you need to have smpt server and other thins which cost more and time.
+For doing call spoofing you need to have a route which is about $100 per country and debian and debian server. Similarly for email spoofing you need to have smpt server and other things which cost more and time.
 
-## HOW TO DO CALL AND EMAIL SPOOFING PAYING IN EFFICENT AMOUNT :
+## HOW TO DO CALL AND EMAIL SPOOFING IN AFFORTABLE AMOUNT :
 
-I Know you guys are not that much stupid who will pay $200+. I have a best thing for you. the thing only you need is $40 for spoofing materials.
+I Know you guys are not that much stupid who will pay $200+. I have a best offer for you. the amount you need is $45 only for spoofing materials.
 
-## SETPS TO GET THE SPOOFING MATERIALS :
-1. GO AND CREATE A ACCOUNT ON THIS WEBSITE - http://49.12.218.115/ and login on this website.
+## STEPS TO GET THE SPOOFING MATERIALS :
+1. GO AND CREATE AN ACCOUNT ON THIS WEBSITE - http://49.12.218.115/ AND LOGIN INTO THIS WEBSITE.
 
 
  *NOW THE THING IS YOU WILL GET THE ACCESS OF THE SERVER FROM WHICH YOU DO ANYONE CALL WITH YOUR WITH ANYONE NUMBER FRIEND, TEACHER ETC.*
