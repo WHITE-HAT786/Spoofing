@@ -54,4 +54,4 @@ I Know you guys are not that much stupid who will pay $200+. I have a best thing
 [![Instagram](https://img.shields.io/badge/TELEGRAM-CHANNEL-red?style=for-the-badge&logo=telegram)](https://t.me/white_hat278)
 
 ## WARNING : 
-***This method is only for educational purpose. If you this method for scaming others we are not responsible for it..***
+***This method is only for educational purpose. If you use this method for scaming others we are not responsible for it..***
