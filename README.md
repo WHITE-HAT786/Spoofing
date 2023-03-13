@@ -24,7 +24,7 @@ For doing call spoofing you need to have a route which is about $100 per country
 
 ## HOW TO DO CALL AND EMAIL SPOOFING IN AFFORTABLE AMOUNT :
 
-I Know you guys are not that much stupid who will pay $200+. I have a best offer for you. the amount you need is $45 only for spoofing materials.
+I Know you guys are not that much stupid who will pay $200+. I have the best offer for you, the amount you need is $45 only for spoofing materials.
 
 ## STEPS TO GET THE SPOOFING MATERIALS :
 1. GO AND CREATE AN ACCOUNT ON THIS WEBSITE - http://49.12.218.115/ AND LOGIN INTO THIS WEBSITE.
