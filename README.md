@@ -13,10 +13,11 @@
 <a href="https://youtube.com/channel/UC6CNM2a-tLuSvoccGA_314A"><img title="YouTube" src="https://img.shields.io/badge/YouTube-WHITE HAT-red?style=for-the-badge&logo=Youtube"></a>
 </p>
 
-## ABOUT CALL AND EMAILL SPOOFING :
+## ABOUT CALL AND EMAIL SPOOFING :
 
-Call Spoofing is unauthorised use of public number attemt to mask or muslead the receiving party origin of call.
-Email spoofing is a technique used in spam and phishing attacks to trick users.
+* Call Spoofing is unauthorised use of public number attempt to mask or muslead the receiving party origin of call.
+
+* Email spoofing is a technique used in spam and phishing attacks to trick users.
 
 ## REQUIREMENTS :
 For doing call spoofing you need to have a route which is about $100 per country and debian and debian server. Similarly for email spoofing you need to have smpt server and other thins which cost more and time.
