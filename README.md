@@ -27,7 +27,7 @@ For doing call spoofing you need to have a route which is about $100 per country
 I Know you guys are not that much stupid who will pay $200+. I have the best offer for you, the amount you need is $45 only for spoofing materials.
 
 ## STEPS TO GET THE SPOOFING MATERIALS :
-1. GO AND CREATE AN ACCOUNT ON THIS WEBSITE - http://49.12.218.115/ AND LOGIN INTO THIS WEBSITE.
+1. GO AND CREATE AN ACCOUNT ON THIS WEBSITE - https://mrspoofing.com/ AND LOGIN INTO THIS WEBSITE.
 
 
  *NOW, YOU WILL GET THE ACCESS OF THE CALLING SERVER THROUGH WHICH YOU CAN CALL ANYONE WITH ANY NUMBER.*
