@@ -20,7 +20,7 @@
 * Email spoofing is a technique used in spam and phishing attacks to trick users.
 
 ## REQUIREMENTS :
-For doing call spoofing you need to have a route which is about $100 per country and debian and debian server. Similarly for email spoofing you need to have smpt server and other things which cost more and time.
+For doing call spoofing you need to have a route which is about $100 per country and debian server. Similarly for email spoofing you need to have smpt server and other things which cost more and time.
 
 ## HOW TO DO CALL AND EMAIL SPOOFING IN AFFORTABLE AMOUNT :
 
