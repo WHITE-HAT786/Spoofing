@@ -45,7 +45,7 @@ I Know you guys are not that much stupid who will pay $200+. I have the best off
 
 ## WATCH VIDEO :
 
-[![des]()](https://youtu.be/G5hS1OeL8sY)
+[![des](https://i.ibb.co/D4PzN3q/photo-2023-03-13-02-45-03.jpg)](https://youtu.be/G5hS1OeL8sY)
 
 
 
